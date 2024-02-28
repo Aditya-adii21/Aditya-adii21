@@ -2,7 +2,8 @@
 - 👀 I’m interested in web devlopment
 - 🌱 I’m currently learning web devlopment
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me @adityarai200321@gmail.com for contaCTING ME
+- 📫 How to reach me @adityarai200321@gmail.com contact me by this email adress for making an website
+- 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
